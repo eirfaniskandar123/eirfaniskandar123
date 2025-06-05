@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Infinite Loop Media<br>🌱 I’m currently learning how to be a better developer
+🔭 I’m currently working on Infinite Loop Media<br>🌱 I’m eager to learn something new
 
 
 ## 🌐 Socials:
